@@ -1,4 +1,4 @@
-# 
+# جديد meme coin sniper bot سكريبتات لـ Mac OS | محدث meme coin sniper bot سكريبتات لـ PC Windows. مع تقدير رسوم الغاز و تنفيذ الحزم — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
